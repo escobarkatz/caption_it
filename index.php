@@ -1,1 +1,1 @@
-<? And so it begins >
+<? And so it begins ?>
